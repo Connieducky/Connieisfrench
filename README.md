@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @Connieisfrench
+- 👋 Hi, I’m @Connieducky !
 - 👀 I’m interested in game developpement and coding !
 - 🌱 I’m currently learning programming for school and stuff idk
